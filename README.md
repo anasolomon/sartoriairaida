@@ -1,1 +1,1 @@
-My first ever made website made on a client's request.
+My first ever made website for a client :D
