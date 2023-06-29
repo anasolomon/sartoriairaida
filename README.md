@@ -1,1 +1,1 @@
-Website made for an acquaintance
+Website made for an acquaintance's business
